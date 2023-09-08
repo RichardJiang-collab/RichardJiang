@@ -1,1 +1,1 @@
-# RichardJiang
+# Richard Jiang
